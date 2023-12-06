@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @darshilgv
 - 👀 I’m interested in programming
-- 🌱 I’m currently learning in 9th grade
-- 🤝reach me in insta @darshilgvezinsta
+- 🌱 I’m currently studying in 9th grade
+- 🤝insta id: @darshilgvezinsta
 - 👶 Just a kid in programming.
